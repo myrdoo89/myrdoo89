@@ -1,4 +1,1 @@
-- 👋 Hi, I’m @myrdoo89
-- 👀 I’m interested in crack
-- 🌱 I’m currently learning coding bruh
-- 💞️ I’m looking to collaborate on bruh
+northh on tope
