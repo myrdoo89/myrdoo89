@@ -1,4 +1,3 @@
-poor eastern european tard!
-donate money 
-i need bread
-i love noatmc
+# hi im myrdoo89
+---
+im black and a skid-lord
