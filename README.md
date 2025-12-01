@@ -1,3 +1,3 @@
-# hi im myrdoo89
+## hi im myrdoo89
 ---
-im black and a skid-lord
+I AM THE GOAT OF SKIDS
